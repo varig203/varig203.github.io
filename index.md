@@ -19,4 +19,4 @@ Admin on King's Playground
 Catboy and a Femboy
 I like Linux, PC's, and Gaming
 
-Discord: entity#8348
+Discord: entity#8348 (I don't accept friend requests)
