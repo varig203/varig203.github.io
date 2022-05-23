@@ -12,10 +12,6 @@ Hello, I am entity and this is my website. This website will mostly be used for 
 
 ### About me
 
-Admin on King's Playground
-[Discord](https://discord.gg/kingsplayground)
-[Website](https://kingsplayground.fun/)
-
 Catboy and a Femboy
 I like Linux, PC's, and Gaming
 
